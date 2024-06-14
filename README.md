@@ -1,16 +1,42 @@
-## Hi there 👋
+**Bem Vindo ao meu perfil, prazer eu sou Dom-Chitos.**
 
-<!--
-**Dom-Chitos/Dom-Chitos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Sou um estudante do Guido Segalho em campinas**
 
-Here are some ideas to get you started:
+**Estou aprendedndo Tecnologia  o alura**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**Busco por seviços remurado**
+
+**Contato**
+
+Telefone:**(19)993421529**
+
+Tenho inglês básico
+
+Possuo 16 anos
+
+E-Mail:Eliamaivancar@gmail.com
+
+**__________________________________________________**
+
+**Sou bem criativo e dedicado a tudo que eu faço.**
+
+![](https://i.pinimg.com/564x/24/09/48/24094834939c3b1ba5879d62e2abcae5.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+**Já chegou o Chitos voador**
+**ᓚ₍ ^. .^₎ 🤏🔨**
